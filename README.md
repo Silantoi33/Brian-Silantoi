@@ -20,7 +20,7 @@
      - music and documentaries
    - reels in Instagram
 2. Swimming
-   - but <sup>sikumbuki nililast swimo lini, everytime napanga kunabaridi</sup> 
+   - but <sup></sup> 
      - 
 
 
